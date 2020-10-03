@@ -1,2 +1,2 @@
 # website
-samm4x's website | samm4x.xyz | Design from @CubityFirst
+pepe music's website | pepemusic.xyz | Design from @CubityFirst
